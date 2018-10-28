@@ -12,3 +12,8 @@ Versão++++++++
 
 Passando aqui, pq eu tava esquecendo do hacktoberfest
 2018 hacktoberfest é nois
+
++++
+Robson, que p** eh essa?/
+Hack 2018 eh NOIZ!!!
++++
